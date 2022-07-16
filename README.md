@@ -1,4 +1,4 @@
-Hi, I’m @Tykoro
+hi : - )
 
 <!---
 Siema
